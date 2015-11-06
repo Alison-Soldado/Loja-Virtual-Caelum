@@ -5,4 +5,4 @@ Para que funcione corretamente, baixe os recursos abaixo:
 3- Baixe as imagens: http://alisonsoldado.imgur.com
 
 
-by: Alison Soldado
+By: Alison Soldado
